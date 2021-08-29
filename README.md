@@ -17,4 +17,4 @@ Blog and detail can be found from the Bitcoin price prediction project https://w
 
 More details about me , click here https://www.linkedin.com/in/dc59445723/
 
-My research interests are in , computer vision , deep learning , image analytics and artifical intelligence. I am seeking for a mphil/PHD from computer science and engineering related discplines. Please drop your email to kalung531@gmail.com if you have any suggestionsfrom my projects or feel free to share you thoughts!
+My research interests are in , computer vision , deep learning , image analytics and artifical intelligence. I am seeking for a mphil/PHD from computer science and engineering related discplines. Please drop your email to kalung531@gmail.com if you have any suggestions from my projects or feel free to share you thoughts!
